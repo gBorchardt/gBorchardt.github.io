@@ -4,5 +4,5 @@
 
 ### Contato
 
-<p>Telefone/WhatsApp: (53)984287882></p>
+<p>Telefone/WhatsApp: (53)984287882</p>
 <p>Email: gabriel.borchardt@hotmail.com</p>
